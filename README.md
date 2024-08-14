@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Eswar Reddy Venna
-- 👀 I’m interested in learn new things 
+- 👀 I’m interested in learning new things 
 - 🌱 I’m currently learning B.Tech
 - 📫 How to reach me Eswar3600/6302320013
 - ⚡ Fun fact :Naturally introvert,selectively extrovert
